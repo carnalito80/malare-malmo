@@ -44,8 +44,8 @@ module.exports = {
     {
       resolve: `gatsby-plugin-manifest`,
       options: {
-        name: 'målaremalmö.nu',
-        short_name: 'målaremalmö.nu',
+        name: 'målaremalmo.nu',
+        short_name: 'målaremalmo.nu',
         start_url: '/',
         background_color: '#5cb85c',
         theme_color: '#5cb85c',
