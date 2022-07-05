@@ -10,22 +10,37 @@ meta:
   title: Våra Tjänster
 ---
 
-## Våra Tjänster
+# Målning inomhus
+Att måla om inomhus kan göra en stor skillnad på ett rum eller annat utrymme. Vi på Målare Malmö kan hjälpa dig med att måla exempelvis väggar, innertak och golv på insidan av ditt hus. Vi lämnar alltid garanti på allt måleriarbete. Givetvis ser vi till att ytan som ska målas om är förberedd genom att ta bort gammal tapet eller spackel som kan finnas kvar på ytorna.
+Sedan skrapas och slipas underlaget ordentligt. Först när förarbetet är gjort grundligt och ordentligt kan ny färg komma på plats
 
-Vi utför de mesta inom måleri i Malmö med omnejd. Det kan vara din villa, lägenhet, sommarstuga, ladugård eller lagerlokal som behöver målas om. Vi kan hjälpa dig med det och utför arbetet snabbt och effektivt. Vi är noggranna med att göra ett profesionellt förarbete så att resultatet håller längre. 
+## Måla om inomhus kan göra stor skillnad
+När ett rum målas om kan det genast känns som att kliva in i ett helt nytt rum. Att investera i ny färg inomhus kostar inte lika mycket i tid och pengar som en totalrenovering. Det är med andra ord ett prisvärt sätt att göra om hemma med låga materialkostnader och med en kort tids renovering. Genom att anlita en professionell målare sparar du dig en hel del tid som du kan lägga på det du istället tycker är roligt. Det krävs många gånger en fackman för att både göra ett korrekt förarbete och sedan måla med ett jämnt och hållbart slutresultat. Resultatet när man gör jobbet själv blir inte alltid lika snyggt och proffsigt som när en erfaren målare gör det. När man anlitar erfarna målare som oss på Målare Malmö - håller färgen i många år och är en bra investering för hemmet. Många gånger kan det alltså vara mer prisvärt att anlita någon som målar än att göra det själv.
 
-### Målning inomhus
-Målning invändigt: Vi kan måla väggar, tak, golv mm på insidan av ditt hus. Vi ser till att ta bort gammal tapet eller spackling som kan finnas på ytorna för att sedan skrapa och/eller slipa ordentligt. Sedan görs förarbetet grundligt och ordentligt innan ny färg kommer på plats.
 
-### Tapetsera:
-Vi kan både anlitas till att tapetsera om hela huset, ett rum eller bara en vägg. Vi utför tapetsering av hög kvalité. En ny tapet kan göra mycket för att fräscha upp ett rum!
+## Välja färg på väggarna
+Att tänka igenom sitt val av färg har många fördelar. Inte minst att man slipper kostnaderna för att måla om på nytt om man inte är nöjd med sitt färgval. En tumregel är att använda ljusa färger för att få ett rum att kännas större. Mörka färger kan få ett rum att upplevas som mindre än vad det är. Tänk även på att ta hänsyn till färgen ni har på golvet, oavsett om det
+är en parkett, plastmatta eller annat material. För att få ihop rummets kulörer på ett harmoniskt sätt bör man hålla sig till antingen genomgående varma nyanser eller kalla nyanser. Tveka inte att kontakta oss om du vill ha hjälp att välja rätt färg till dina väggar.
 
-### Målning av nybygge:
-När man byggt nytt och behöver måla det kan vi stå till tjänst. Vi hjälper till med nymålning av hus, altan, fritidshus, lekstuga, poolstaket eller vad det nu kan tänkas vara. 
+# Tapetsering
+Går du i tankarna att sätta upp nya tapeter på väggarna? Att byta tapet i ett helt rum eller att bara sätta upp en fondvägg kan omvandla känslan i hela rummet. Jämfört med att måla om väggar - upplever många att tapet på väggarna ger en mjukare och mer ombonad känsla i rummet. Anledningen är att tapeter finns i en mängd olika mönster och färger. Många gånger i ett mönster som är svårt att uppnå genom målning.
 
-### Målning utomhus:
-Helt plötsligt kommer dagen då hela huset behöver målas om efter slitage från sol, vind, snö och frost. Det tar lite tid att måla fasad och det kan vara på höga höjder. Vi hjälper dig att måla om det och vi ordnar med stege eller annan utrustning som kan komma att behövas. Vi kan även anlitas för att måla om fönsterkarmar, lister och mindre detaljer.
+## Anlita fackman för uppsättning av tapet
+Att själv sätta upp tapeter kan vara en utmaning, framförallt när det är mönster i tapeten som behöver mönsteranpassas. Man ska även tänka på att förbereda väggarna som ska få ny tapet. Exempelvis kan det behövas förarbete som exempelvis spackla över gamla hål och skavanker och slipa till så att hela väggen är jämn innan tapet sätt på plats. Då det är mer komplicerat än vad det ser ut - rekommenderar vi att alltid anlita en fackman när du behöver
+hjälp med uppsättning av ny tapet.
 
-### Underhållsarbete:
-Du kan även anlita oss för att måla om och fixa mindre saker som behöver ny färg eller är slitet. Kontakta oss för mer information om detta.
+## Att tänka på vi val av tapet
+När du har bestämt dig för att bästa sättet att renovera dina väggar på är tapetsering, är det dags att börja tänka på val av tapet. Tänk på att välja tapeter som går hand i hand med stilen och inredningen i hemmet. Om du har det lantligt hemma kan man exempelvis titta på tapeter som är lite mer dova i färg eller innehåller diskreta mönster som t.ex. små blommor. Ett bra sätt att testa tapeten innan man bestämt sig är att köpa hem ett tapetprov och  sätta upp på väggen. Ställ någon av dina möbler intill väggen med tapetprovet på och känn efter om tapet och inredning kompletterar varandra. Livslängden på tapet är generellt mellan 10-15 år, välj därför en tapet som du inte kommer att tröttna på. Om du går i säljtankar inom ett par år, kan det även vara klokt att välja en neutral tapet som inte sticket ut för mycket. Om du inte kan bestämma dig och vill ha hjälp så rekommenderar vi i första hand att få hjälp och inspiration hos din lokala färg- och tapetbutik. Kontakta oss om du vill ha tips på butiker och tapetleverantörer. Du är också välkommen att höra av dig till oss om du vill bolla ideér inför val av tapet och för rådgivning kring arbetets omfattning.
+
+# Målning utomhus
+Är det dag att rusta upp utsidan av huset? Vi på Målare Malmö kan hjälpa dig att måla utomhus. Vi kan utföra en helhets upprustning av bland annat husets fasad, garage och snickerier runt omkring, så som staket och altan. Målarfärg för utomhusbruk är specialanpassad för att tåla värme och kyla, men trots det är det oundvikligt med slitage från sol, vind, snö och frost. När det är dags för uppfräschning av färgen utomhus kommer det väl till pass att anlita en professionell målare för jobbet. Att måla en husfasad är tidskrävande och kan dessutom vara farligt för en amatör att utföra då arbetet kan ske på höga höjder. Vi på Målare Malmö hjälper dig att måla om huset säkert och smidigt. Vi ser alltid till att ha med oss egen stege och annan utrustning som kan komma att behövas.
+
+## När kan man måla utomhus?
+Den optimala tiden för att måla utomhus är från slutet av april till slutet av september. Detta förutsätter att det inte ska vara regn samma dag som planerad målning, samt att det inte ska ha regnat på några dagar innan. Temperaturen bör ligga någonstans mellan 15-25 grader de dagar målning utomhus sker. Kontakta oss gärna för en konsultation så kan vi tillsammans titta på projektet för att estimera tidsåtgång. Då kan vi lättare planera för att hinna med att utföra arbetet under regnfria dagar.
+
+## Måla mer än bara husfasad
+Att måla husfasaden brukar vara en av de saker man tänker på först när man börjar funder på att rusta upp utsidan av huset. Men för att få ett fint helhetsintryck rekommenderar vi att man även ser över skicket på övriga delar av huset, så som fönsterkarmar, dörrar och staket. Vi kan hjälpa er att utföra alla typer av målningar i utomhus. Inga projekt är för stora eller för små. Kontakta oss gärna för en konsultation.
+
+
+
 
